@@ -12,7 +12,7 @@
 
 - 📫 How to reach me **thakurisrijan051@gmail.com**
 
-- ⚡ Fun fact **I am a jack of all trades**
+- ⚡ Fun fact **I like mathematics**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
